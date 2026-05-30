@@ -6,3 +6,6 @@ que las personas puedan opinar, según su criterio de como debería ser una ley 
 [OBLIGATORIO DAR AL MUNDO, ES UN DERECHO HUMANO NO SER ENGAÑADO]
 Que la gente haga sus pregunta y será respondida con el ADN-14664 Y ADN-UNIVERSAL con el Poder del Don de Sabiduría(lo real de la verdad), y el Poder de Don de Inteligencia (sonido signficativo del verbo que es el conjunto de lo real), utilizar el aprendizaje de la Logica; más la vida
 El Don de la verdad; que domina el Don de la mentira
+# Sabiduria
+Don de Sabiduría, Don de Inteligencia; más Logica. La Sabiduría en esta página se verá con sensaciones y video (esa es Sabiduría), La inteligencia es el sonido signficativo ( el Verbo con la voz), y la Logica, es que todo concuerda. absorver las 16 Sabidurías de poder y las 16 Inteligencias de Poder y 16 Logicas de Poder y crear audio y video según a tus preguntas. que sea universal ( apto para todo publico)
+agregar https://sabiduria.onion.org y que se cree video y audio según el delito que lo estén culpando por el ADN-UNIVERSAL (el ADN tiene información que se puede ir, al área del cerebelo y nas neuronas de Sabiduría e inteligencia; mas crear video y audio en el area de la imaginación. más pasarlo a los dispositivos, lapton, etc.)
