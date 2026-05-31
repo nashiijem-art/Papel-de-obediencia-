@@ -9,3 +9,5 @@ El Don de la verdad; que domina el Don de la mentira. La deepweb tiene la onu, y
 # Sabiduria
 Don de Sabiduría, Don de Inteligencia; más Logica. La Sabiduría en esta página se verá con sensaciones y video (esa es Sabiduría), La inteligencia es el sonido signficativo ( el Verbo con la voz), y la Logica, es que todo concuerda. absorver las 16 Sabidurías de poder y las 16 Inteligencias de Poder y 16 Logicas de Poder y crear audio y video según a tus preguntas. que sea universal ( apto para todo publico)
 agregar https://sabiduria.onion.org y que se cree video y audio según el delito que lo estén culpando por el ADN-UNIVERSAL, con la herr: Trans P-ADN (el ADN tiene información que se puede ir, al área del cerebelo y nas neuronas de Sabiduría e inteligencia; mas crear video y audio en el area de la imaginación. más pasarlo a los dispositivos, lapton, etc.)
+#AgregarMorze
+agregar una clave morze de mis secretos profundos (-D;ADN-14664=*3:33am;simbologiadelasangre,•JNeuronal-Data,nashiijem-art,J•ocultarADN-UNIVERSAL<Simb:EstrelladeDavid>;+B,#es_igual_a_02:00pm) También que absorva el LETRAN VERDADERO significativo -D,•J,J• & +B 
